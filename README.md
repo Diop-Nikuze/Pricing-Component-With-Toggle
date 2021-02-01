@@ -1,5 +1,7 @@
+A good programmer must always be ready to face different challenges, be ready to solve different problems of everyday life.
+That's why I have to learn to surpass myself, by facing different challenges.
 
-
+#My name is Diop Nikuze from Burundi !
 
 
 
